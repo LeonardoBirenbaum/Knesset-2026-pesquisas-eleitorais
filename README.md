@@ -1,0 +1,1 @@
+# Knesset-2026-pesquisas-eleitorais
